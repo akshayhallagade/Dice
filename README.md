@@ -9,5 +9,5 @@
 
 ### Contact.
 For Further changes do contact on the given links.
-1. [Discord Server.](https://discord.gg/cubW7mhd).
+1. [Discord Server.](https://discord.gg/cubW7mhd)
 2. Email : akshayhallagade2612@gmail.com
