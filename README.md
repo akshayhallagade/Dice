@@ -10,5 +10,4 @@
 ### Contact.
 For Further changes do contact on the given links.
 1. Creat Issues.
-2. Join: [Discord Server.](https://discord.gg/gagKQnZye9)
-3. Email : akshayhallagade2612@gmail.com
+2. Email : akshayhallagade2612@gmail.com
